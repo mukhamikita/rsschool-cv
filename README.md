@@ -1,1 +1,1 @@
-# rsschool-cv
+https://mukhamikita.github.io/rsschool-cv/
